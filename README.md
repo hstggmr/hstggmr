@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @hstggmr
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning in Aryans Model School      
+- 🌱 I’m currently learning in Sarvodya School of Science
 - 💞️ I’m looking to collaborate on Coders
 - 📫 How to reach me By my email hstggmr@gmail.com
 
